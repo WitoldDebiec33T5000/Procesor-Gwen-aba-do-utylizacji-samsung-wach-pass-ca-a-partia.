@@ -1,0 +1,1 @@
+# Procesor-Gwen-aba-do-utylizacji-samsung-wach-pass-ca-a-partia.
